@@ -1,1 +1,1 @@
-# Automatization
+Мойсеєнко Д.
